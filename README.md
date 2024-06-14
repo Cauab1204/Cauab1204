@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do CauaB 😁
+## Bem-vindo(a) ao perfil do Caua Bemfica😁
 
  <div>
    <a href="https://github.comCauab1204/">
